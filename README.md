@@ -1,5 +1,9 @@
 <div align="center">
 
+i only do this once in while so maybe 250 following per week...
+
+<div align="center">
+
 <img width="500" height="350" alt="image" src="https://media.tenor.com/RB6DC0zDkK0AAAAM/yellow-and-blue-yellow-deltarune.gif" />
 
 $$ \Large \color{blue}{\textbf{⳽ρᥲຕ ƒoꙆꙆoω}} $$ $$ \Large \color{gold}{\textbf{ᑲꙆoᥴƙ ɩƒ ᥙᥒωᥲᥒtᥱᑯ}} $$
