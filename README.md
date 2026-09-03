@@ -1,16 +1,14 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**cowboyofdeltarune/cowboyofdeltarune** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="500" height="350" alt="image" src="https://media.tenor.com/RB6DC0zDkK0AAAAM/yellow-and-blue-yellow-deltarune.gif" />
 
-Here are some ideas to get you started:
+$$ \Large \color{blue}{\textbf{⳽ρᥲຕ ƒoꙆꙆoω}} $$ $$ \Large \color{gold}{\textbf{ᑲꙆoᥴƙ ɩƒ ᥙᥒωᥲᥒtᥱᑯ}} $$
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="1920" height="160" alt="image" src="https://64.media.tumblr.com/59d50e8e84a2a35af99506a3cd02f506/1ff47583e886b6b2-60/s2048x3072/393424ae8b1632e7272c66db9e773e6d81f8c5e5.gif" /></img></a>
+
+[ຕᥲɩᥒ ᥲᥴᥴoᥙᥒt](https://github.com/yellowdeltarune.)
+
+
+
+
+
